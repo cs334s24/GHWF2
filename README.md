@@ -4,8 +4,9 @@
 Practice space for using the Github Workflow.
 
 Participants:
-Ben Coleman
-
+Ben Coleman oejfwepojf@gmail.com
+Dylan Fodor woifhwjfw@gmail.com
+Thomas Abato apslqowjeq@gmail.com
 
 ## Setup
 
