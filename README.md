@@ -7,7 +7,8 @@ Participants:
 Ben Coleman oejfwepojf@gmail.com
 Dylan Fodor woifhwjfw@gmail.com
 Thomas Abato apslqowjeq@gmail.com
-Anna Huang 
+new name
+Anna Huang
 Marie adsd@gmail.com
 huanga@moravian.edu 
 
