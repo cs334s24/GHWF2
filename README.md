@@ -10,6 +10,7 @@ Thomas Abato apslqowjeq@gmail.com
 new name
 Anna Huang
 Marie adsd@gmail.com
+huanga@moravian.edu 
 
 ## Setup
 
